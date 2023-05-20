@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @DHYEY2312
-- 👀 I’m interested in Gaming
-- 🌱 I’m currently learning BCA
+- 🌱 I’m currently studying in BCA.
+- (-_-)
 
 <!---
 DHYEY2312/DHYEY2312 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

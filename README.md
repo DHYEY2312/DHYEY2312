@@ -1,5 +1,5 @@
 # 💫 About Me:
--👋 Hi, I’m @DHYEY2312<br>- 🌱 I’m currently studying in BCA.<br>- (-_-)
+-👋 Hi, I’m @DHYEY2312<br>- 🌱 I’m currently pursuing BCA.<br>- (-_-)
 
 
 ## 🌐 Socials:

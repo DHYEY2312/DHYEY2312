@@ -1,5 +1,5 @@
 # 💫 About Me:
--👋 Hi, I’m @DHYEY2312<br>- 🌱 I’m currently pursuing BCA.<br>- (-_-)
+-👋 Hi, I’m @DHYEY2312<br>- 🌱 I’m currently pursuing BCA at The Maharaja Sayajirao University of Baroda.<br>- (-_-)
 
 
 ## 🌐 Socials:
